@@ -7,14 +7,17 @@
 
 **HELLO! I am redoing this!!**
 
-[![noob-ezgif-com-optimize.gif](https://i.postimg.cc/Gtj4pTcX/noob-ezgif-com-optimize.gif)](https://postimg.cc/RJNSsFJt)
-
-_THANK YOU SO MUCH DANI!_
-
-[![Untitled126-20250913154235.webp](https://i.postimg.cc/63JqLfqH/Untitled126-20250913154235.webp)](https://postimg.cc/DW677sqs)
+<img src="https://i.pinimg.com/736x/31/c4/ef/31c4ef820dc93b8309d75992ad8fc4bb.jpg" alt="Story pin image"/>
 
 
-[![1.jpg](https://i.postimg.cc/5yzZ58Hm/1.jpg)](https://postimg.cc/V0YGmrWS)
+_"I Just want my friends back."_
+
+<img src="https://i.pinimg.com/736x/d0/ea/aa/d0eaaa33e12e93b52e0ba29f49555b11.jpg" alt="Story pin image"/>
+
+_Possible Pen IRL/kinner! I'm him guys._
+
+
+<img src="https://i.pinimg.com/736x/37/34/5b/37345bfb609f1520fa95dbdc691650f8.jpg" alt="Story pin image"/>
 
 
 
