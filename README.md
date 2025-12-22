@@ -3,9 +3,10 @@
 *Did NOT know where to put this but big big disclaimer I do have anger issues or get angry easily. If I say or do anything just dont take it the wrong way cause its on me not you!<3 I am tryingg to grow out of this habit!*
 
 
-<img src="https://i.pinimg.com/736x/8c/b2/d5/8cb2d518a31fdbadb22fd30fc2f2a6cb.jpg" alt="Story pin image"/>
+<img src="https://i.pinimg.com/736x/c1/73/f7/c173f7188901bf9a905582513df5f304.jpg" alt="Story pin image"/>
 
-**HELLO! I am redoing this!!**
+_aka the best BFDI team_
+
 
 <img src="https://i.pinimg.com/736x/31/c4/ef/31c4ef820dc93b8309d75992ad8fc4bb.jpg" alt="Story pin image"/>
 
