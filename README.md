@@ -1,24 +1,23 @@
-
-
 *Did NOT know where to put this but big big disclaimer I do have anger issues or get angry easily. If I say or do anything just dont take it the wrong way cause its on me not you!<3 I am tryingg to grow out of this habit!*
 
 
-<img src="https://i.pinimg.com/736x/c1/73/f7/c173f7188901bf9a905582513df5f304.jpg" alt="Story pin image"/>
-
-_aka the best BFDI team_
+<img src="https://i.pinimg.com/736x/3d/6c/ad/3d6cad86071eaf0f3255da880e4e8e7b.jpg" alt="This may contain: a drawing of a rainbow with clouds and sun in the sky"/>
 
 
-<img src="https://i.pinimg.com/736x/31/c4/ef/31c4ef820dc93b8309d75992ad8fc4bb.jpg" alt="Story pin image"/>
+_HUGE Pen/Knife/Paintbrush IRL theyre me guys_
 
 
-_"I Just want my friends back."_
-
-<img src="https://i.pinimg.com/736x/d0/ea/aa/d0eaaa33e12e93b52e0ba29f49555b11.jpg" alt="Story pin image"/>
-
-_Possible Pen IRL/kinner! I'm him guys._
+<img src="https://i.pinimg.com/736x/2b/7b/78/2b7b78e9aa701f131dc86d7513a9670d.jpg" alt="Story pin image"/>
 
 
-<img src="https://i.pinimg.com/736x/37/34/5b/37345bfb609f1520fa95dbdc691650f8.jpg" alt="Story pin image"/>
+_THEYRE LITERALLY MARRIED TRUST ME._
+
+<img src="https://i.pinimg.com/736x/5c/5a/f7/5c5af77727fcb0e5242c1df1114be706.jpg" alt="This may contain: an animated image of a castle with rainbows and clouds"/>
+
+_I love colorful skins did you know that_
+
+
+<img src="https://i.pinimg.com/736x/f8/35/a8/f835a8f9304cc24cb11d2f84ad4b88fa.jpg" alt="This may contain: an image of a cartoon character with stars and rainbows"/>
 
 
 
