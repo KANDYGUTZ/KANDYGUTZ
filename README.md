@@ -1,7 +1,6 @@
 *Did NOT know where to put this but big big disclaimer I do have anger issues or get angry easily. If I say or do anything just dont take it the wrong way cause its on me not you!<3 I am tryingg to grow out of this habit!*
 
-
-[![image.gif](https://i.postimg.cc/0QtvnXBp/image.gif)](https://postimg.cc/JDBS4xmn)
+[![Is-That-A-Pillowcase-Full-Of-Milk.jpg](https://i.postimg.cc/259mFXJF/Is-That-A-Pillowcase-Full-Of-Milk.jpg)](https://postimg.cc/SX9wmVmJ)
 
 _HUGE Pen/Knife/Paintbrush IRL theyre me guys_
 
