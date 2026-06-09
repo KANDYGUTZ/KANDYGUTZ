@@ -1,8 +1,7 @@
 *Did NOT know where to put this but big big disclaimer I do have anger issues or get angry easily. If I say or do anything just dont take it the wrong way cause its on me not you!<3 I am tryingg to grow out of this habit!*
 
 
-<img src="https://i.pinimg.com/736x/3d/6c/ad/3d6cad86071eaf0f3255da880e4e8e7b.jpg" alt="This may contain: a drawing of a rainbow with clouds and sun in the sky"/>
-
+https://i.postimg.cc/0QtvnXBp/image.gif
 
 _HUGE Pen/Knife/Paintbrush IRL theyre me guys_
 
