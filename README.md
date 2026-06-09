@@ -4,8 +4,7 @@
 
 _HUGE Pen/Knife/Paintbrush IRL theyre me guys_
 
-
-<img src="https://i.pinimg.com/736x/2b/7b/78/2b7b78e9aa701f131dc86d7513a9670d.jpg" alt="Story pin image"/>
+[![(2).jpg](https://i.postimg.cc/MKwkRSHv/(2).jpg)](https://postimg.cc/ThtHMBr6)
 
 
 _THEYRE LITERALLY MARRIED TRUST ME._
