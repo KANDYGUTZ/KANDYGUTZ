@@ -2,12 +2,11 @@
 
 [![Is-That-A-Pillowcase-Full-Of-Milk.jpg](https://i.postimg.cc/259mFXJF/Is-That-A-Pillowcase-Full-Of-Milk.jpg)](https://postimg.cc/SX9wmVmJ)
 
-_HUGE Pen/Knife/Paintbrush IRL theyre me guys_
+_Tom yumeshipper/Paintbrush IRL!_
 
 [![(2).jpg](https://i.postimg.cc/MKwkRSHv/(2).jpg)](https://postimg.cc/ThtHMBr6)
 
-
-_THEYRE LITERALLY MARRIED TRUST ME._
+_NO clue how to edit this_
 
 <img src="https://i.pinimg.com/736x/5c/5a/f7/5c5af77727fcb0e5242c1df1114be706.jpg" alt="This may contain: an animated image of a castle with rainbows and clouds"/>
 
