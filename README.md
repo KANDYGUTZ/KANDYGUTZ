@@ -1,4 +1,5 @@
 *Did NOT know where to put this but big big disclaimer I do have anger issues or get angry easily. If I say or do anything just dont take it the wrong way cause its on me not you!<3 I am tryingg to grow out of this habit!*
+**Sorry if I do come off as dry or rude when first interacting!**
 
 [![Is-That-A-Pillowcase-Full-Of-Milk.jpg](https://i.postimg.cc/259mFXJF/Is-That-A-Pillowcase-Full-Of-Milk.jpg)](https://postimg.cc/SX9wmVmJ)
 
