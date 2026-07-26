@@ -3,7 +3,7 @@
 
 [![Is-That-A-Pillowcase-Full-Of-Milk.jpg](https://i.postimg.cc/259mFXJF/Is-That-A-Pillowcase-Full-Of-Milk.jpg)](https://postimg.cc/SX9wmVmJ)
 
-_Tom yumeshipper/Paintbrush IRL!_
+_Tom selfshipper + oc x canon/Paintbrush IRL!_
 
 [![(2).jpg](https://i.postimg.cc/MKwkRSHv/(2).jpg)](https://postimg.cc/ThtHMBr6)
 
