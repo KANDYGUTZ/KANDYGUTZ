@@ -1,7 +1,7 @@
 [![heart-emoji.jpg](https://i.postimg.cc/mgWztx1J/heart-emoji.jpg)](https://postimg.cc/PPKrRR4Q)
 ## ۶ৎ Bad anger issues and blunt. Keep that in mind when interacting.
 [![(5).jpg](https://i.postimg.cc/6QjC7jXT/(5).jpg)](https://postimg.cc/f3dVpvkh)
-## ۶ৎ 
+## ۶ৎ Tom/Rody Soul selfshipper / oc x canon!!
 [![(6).jpg](https://i.postimg.cc/fR59F2kg/(6).jpg)](https://postimg.cc/4Y7yH16z)
 ## ۶ৎ
 [![userbox-mbm.jpg](https://i.postimg.cc/7LWTP53T/userbox-mbm.jpg)](https://postimg.cc/cKfJX45s)
