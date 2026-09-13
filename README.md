@@ -8,7 +8,7 @@
 
 ### ۶ৎ Usually always sitting with friends in different areas! The main two are Danganronpa and OSC
 
-<img src="https://i.pinimg.com/736x/5c/5a/f7/5c5af77727fcb0e5242c1df1114be706.jpg" alt="This may contain: an animated image of a castle with rainbows and clouds"/>
+[![(1).gif](https://i.postimg.cc/xT58TkYb/(1).gif)](https://postimg.cc/KRKx081Z)   
 
 #### ۶ৎ I love colorful skins did you know that
 
