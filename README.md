@@ -1,18 +1,16 @@
-**Paintbrush/Test Tube Fictkin!**
+[![heart-emoji.jpg](https://i.postimg.cc/mgWztx1J/heart-emoji.jpg)](https://postimg.cc/PPKrRR4Q)
+## ۶ৎ Bad anger issues and blunt. Keep that in mind when interacting.
+[![(5).jpg](https://i.postimg.cc/6QjC7jXT/(5).jpg)](https://postimg.cc/f3dVpvkh)
+## ۶ৎ 
+[![(6).jpg](https://i.postimg.cc/fR59F2kg/(6).jpg)](https://postimg.cc/4Y7yH16z)
+## ۶ৎ
+[![userbox-mbm.jpg](https://i.postimg.cc/7LWTP53T/userbox-mbm.jpg)](https://postimg.cc/cKfJX45s)
 
-**Anger issues and not good w socializing at times but I am cool! Please do keep this in mind, thank you!!! :3**
-
-[![Is-That-A-Pillowcase-Full-Of-Milk.jpg](https://i.postimg.cc/259mFXJF/Is-That-A-Pillowcase-Full-Of-Milk.jpg)](https://postimg.cc/SX9wmVmJ)
-
-_Tom selfshipper + oc x canon_
-
-[![(2).jpg](https://i.postimg.cc/MKwkRSHv/(2).jpg)](https://postimg.cc/ThtHMBr6)
-
-_NO clue how to edit this_
+### ۶ৎ Usually always sitting with friends in different areas! The main two are Danganronpa and OSC
 
 <img src="https://i.pinimg.com/736x/5c/5a/f7/5c5af77727fcb0e5242c1df1114be706.jpg" alt="This may contain: an animated image of a castle with rainbows and clouds"/>
 
-_I love colorful skins did you know that_
+#### ۶ৎ I love colorful skins did you know that
 
 
 <img src="https://i.pinimg.com/736x/f8/35/a8/f835a8f9304cc24cb11d2f84ad4b88fa.jpg" alt="This may contain: an image of a cartoon character with stars and rainbows"/>
