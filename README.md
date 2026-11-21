@@ -1,9 +1,12 @@
+<p align="center">
+  <img src="https://file.garden/aD-jsL8SzQvp8mjK/image_2026-10-16_123318674.png" width="650">
+</p>
 
+<div align="center">
+  <img src="https://hits.sh/github.com/KANDYGUTZ.svg?style=flat-plastic&label=EXPLOSIONS%20&Count=1&color=fff8cc&labelColor=ff7029">
+</div>
 
-
-
-
-
+<br>
 
 [![923237992365459845.jpg](https://i.postimg.cc/jq75jWWD/923237992365459845.jpg)](https://postimg.cc/xq9Yx13Q)
 ## ۶ৎ "𝘌𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘳𝘦'𝘴 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘭𝘦𝘧𝘵 𝘰𝘧 𝘮𝘦, 𝘐 𝘸𝘪𝘭𝘭 𝘸𝘪𝘯 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘐 𝘸𝘢𝘯𝘵 𝘵𝘰!"🎇
@@ -15,13 +18,13 @@
   <summary>Friends</summary>
   <br>
 
-  - <img src="https://avatars.githubusercontent.com/u/166640328?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [DYLAN](https://github.com/talentlesshope)
-  - <img src="https://avatars.githubusercontent.com/u/120025586?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [SOKI](https://github.com/sokizsp4ceship)
-  - <img src="https://avatars.githubusercontent.com/u/156541065?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [IZUKU](https://github.com/bazlnka)
-  - <img src="https://avatars.githubusercontent.com/u/221433796?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [PIN](https://github.com/LEAFPIN)
-  - <img src="https://avatars.githubusercontent.com/u/148148797?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [MS](https://github.com/floatingflyx)
-  -  <img src="https://avatars.githubusercontent.com/u/183022131?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [SUNNY](https://github.com/kolcheks)
-  -  +MORE! Ask to be added please!!
+   <img src="https://avatars.githubusercontent.com/u/166640328?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [DYLAN](https://github.com/talentlesshope)
+   <img src="https://avatars.githubusercontent.com/u/120025586?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [SOKI](https://github.com/sokizsp4ceship)
+   <img src="https://avatars.githubusercontent.com/u/156541065?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [IZUKU](https://github.com/bazlnka)
+   <img src="https://avatars.githubusercontent.com/u/221433796?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [PIN](https://github.com/LEAFPIN)
+   <img src="https://avatars.githubusercontent.com/u/148148797?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [MS](https://github.com/floatingflyx)
+    <img src="https://avatars.githubusercontent.com/u/183022131?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [SUNNY](https://github.com/kolcheks)
+  *  +MORE! Ask to be added please!!
 
 
 
