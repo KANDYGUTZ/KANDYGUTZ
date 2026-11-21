@@ -11,11 +11,11 @@
   <br>
 
   - <img src="https://avatars.githubusercontent.com/u/166640328?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [DYLAN](https://github.com/talentlesshope)
-  - <img src="https://avatars.githubusercontent.com/u/120025586?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [SOKI]([https://github.com](https://github.com/sokizsp4ceship))
-  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [IZUKU](https://github.com)
-  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [PIN](https://github.com)
-  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [MS](https://github.com)
-  -  <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [SUNNY](https://github.com)
+  - <img src="https://avatars.githubusercontent.com/u/120025586?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [SOKI](https://github.com/sokizsp4ceship)
+  - <img src="https://avatars.githubusercontent.com/u/156541065?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [IZUKU](https://github.com/bazlnka)
+  - <img src="https://avatars.githubusercontent.com/u/221433796?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [PIN](https://github.com/LEAFPIN)
+  - <img src="https://avatars.githubusercontent.com/u/148148797?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [MS](https://github.com/floatingflyx)
+  -  <img src="https://avatars.githubusercontent.com/u/183022131?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [SUNNY](https://github.com/kolcheks)
   -  +MORE! Ask to be added please!!
 
 
