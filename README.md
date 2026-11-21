@@ -1,12 +1,12 @@
+[![923237992365459845.jpg](https://i.postimg.cc/jq75jWWD/923237992365459845.jpg)](https://postimg.cc/xq9Yx13Q)
 ## ۶ৎ "𝘌𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘳𝘦'𝘴 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘭𝘦𝘧𝘵 𝘰𝘧 𝘮𝘦, 𝘐 𝘸𝘪𝘭𝘭 𝘸𝘪𝘯 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘐 𝘸𝘢𝘯𝘵 𝘵𝘰!"🎇
 [![(7).jpg](https://i.postimg.cc/ZnC5PRHX/(7).jpg)](https://postimg.cc/jnYTtRGh)
 ## ۶ৎ Bad anger issues and blunt. Keep that in mind when interacting.
 [![(3).gif](https://i.postimg.cc/65Z9BFmc/(3).gif)](https://postimg.cc/jLsVX3Kn)
 ## ۶ৎ Tom/Rody Soul selfshipper / oc x canon!!
-[![(6).jpg](https://i.postimg.cc/fR59F2kg/(6).jpg)](https://postimg.cc/4Y7yH16z)
+[![Post-by-queenrojpag-5-images.gif](https://i.postimg.cc/xTgSjYPT/Post-by-queenrojpag-5-images.gif)](https://postimg.cc/CzZ2J3tW)
 ## ۶ৎ
-[![userbox-mbm.jpg](https://i.postimg.cc/7LWTP53T/userbox-mbm.jpg)](https://postimg.cc/cKfJX45s)
-
+[![(8).jpg](https://i.postimg.cc/13JRdwdq/(8).jpg)](https://postimg.cc/zyH1bb8z)
 ### ۶ৎ Usually always sitting with friends in different areas! The main two are Danganronpa and OSC
 
 [![(1).gif](https://i.postimg.cc/xT58TkYb/(1).gif)](https://postimg.cc/KRKx081Z)   
@@ -14,9 +14,7 @@
 #### ۶ৎ I love colorful skins did you know that
 
 
-<img src="https://i.pinimg.com/736x/f8/35/a8/f835a8f9304cc24cb11d2f84ad4b88fa.jpg" alt="This may contain: an image of a cartoon character with stars and rainbows"/>
-
-
+[![KA-BOOM.jpg](https://i.postimg.cc/3JjxgPFM/KA-BOOM.jpg)](https://postimg.cc/D8ZhhpN5)
 
 
 
