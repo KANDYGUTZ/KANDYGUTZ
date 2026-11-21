@@ -18,12 +18,11 @@
   <summary>Friends</summary>
   <br>
 
-  - <img src="https://github.co" width="30" height="30" style="border-radius:50%;" valign="middle"> [𝑫𝒀𝑳𝑨𝑵](https://github.com/talentlesshope)
+  - <img src="https://avatars.githubusercontent.com/u/166640328?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [DYLAN](https://github.com/talentlesshope)
   - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [Friend Name 2](https://github.com)
   - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [Friend Name 3](https://github.com)
 
 </details>
-
 
 
 
