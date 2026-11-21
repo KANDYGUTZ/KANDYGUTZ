@@ -1,10 +1,4 @@
-<p align="center">
-<img src="https://file.garden/aD-jsL8SzQvp8mjK/image_2026-10-16_123318674.png" width="650">
-<div align="center">
-<p align="center">
-  <p align="center"> <img src="https://hits.sh/github.com/KANDYGUTZ.svg?style=flat-plastic&label=EXPLOSIONS%20&Count=1&color=fff8cc&labelColor=ff7029"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="7ca21b6061cecfedb7e2e4a7f62619e3" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
-  <mrow data-mjx-texclass="ORD">
-  
+
 
 
 
@@ -15,6 +9,7 @@
 ## ۶ৎ "𝘌𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘳𝘦'𝘴 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘭𝘦𝘧𝘵 𝘰𝘧 𝘮𝘦, 𝘐 𝘸𝘪𝘭𝘭 𝘸𝘪𝘯 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘐 𝘸𝘢𝘯𝘵 𝘵𝘰!"🎇
 [![(7).jpg](https://i.postimg.cc/ZnC5PRHX/(7).jpg)](https://postimg.cc/jnYTtRGh)
 ## ۶ৎ Bad anger issues and blunt. Keep that in mind when interacting.
+
 
 <details>
   <summary>Friends</summary>
