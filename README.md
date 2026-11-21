@@ -2,8 +2,9 @@
 <img src="https://file.garden/aD-jsL8SzQvp8mjK/image_2026-10-16_123318674.png" width="650">
 <div align="center">
 <p align="center">
-  <p align="center"> <img src="https://hits.sh/github.com/sokizsp4ceship.svg?style=flat-plastic&label=EXPLOSIONS%20&Count=1&color=FFFFFF&labelColor=D5D3E0">     <math-renderer class="js-inline-math" style="display: inline-block" data-run-id="7ca21b6061cecfedb7e2e4a7f62619e3" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
+  <p align="center"> <img src="https://hits.sh/github.com/KANDYGUTZ.svg?style=flat-plastic&label=EXPLOSIONS%20&Count=1&color=fff8cc&labelColor=ff7029"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="7ca21b6061cecfedb7e2e4a7f62619e3" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
   <mrow data-mjx-texclass="ORD">
+  
 
 
 
