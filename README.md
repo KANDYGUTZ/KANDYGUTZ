@@ -1,7 +1,7 @@
-[![heart-emoji.jpg](https://i.postimg.cc/mgWztx1J/heart-emoji.jpg)](https://postimg.cc/PPKrRR4Q)
+## ۶ৎ "𝘌𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘳𝘦'𝘴 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘭𝘦𝘧𝘵 𝘰𝘧 𝘮𝘦, 𝘐 𝘸𝘪𝘭𝘭 𝘸𝘪𝘯 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘐 𝘸𝘢𝘯𝘵 𝘵𝘰!"🎇
+[![(7).jpg](https://i.postimg.cc/ZnC5PRHX/(7).jpg)](https://postimg.cc/jnYTtRGh)
 ## ۶ৎ Bad anger issues and blunt. Keep that in mind when interacting.
-### ۶ৎ I don't talk first often, so sorry about that! ^^
-[![(5).jpg](https://i.postimg.cc/6QjC7jXT/(5).jpg)](https://postimg.cc/f3dVpvkh)
+[![(3).gif](https://i.postimg.cc/65Z9BFmc/(3).gif)](https://postimg.cc/jLsVX3Kn)
 ## ۶ৎ Tom/Rody Soul selfshipper / oc x canon!!
 [![(6).jpg](https://i.postimg.cc/fR59F2kg/(6).jpg)](https://postimg.cc/4Y7yH16z)
 ## ۶ৎ
