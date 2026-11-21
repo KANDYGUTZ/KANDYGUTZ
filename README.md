@@ -8,9 +8,9 @@
 
 <br>
 
-[![923237992365459845.jpg](https://i.postimg.cc/jq75jWWD/923237992365459845.jpg)](https://postimg.cc/xq9Yx13Q)
+[![(8).jpg](https://i.postimg.cc/GhMFvLnc/(8).jpg)](https://postimg.cc/3dv0THw6)
 ## ۶ৎ "𝘌𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘳𝘦'𝘴 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘭𝘦𝘧𝘵 𝘰𝘧 𝘮𝘦, 𝘐 𝘸𝘪𝘭𝘭 𝘸𝘪𝘯 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘐 𝘸𝘢𝘯𝘵 𝘵𝘰!"🎇
-[![(7).jpg](https://i.postimg.cc/ZnC5PRHX/(7).jpg)](https://postimg.cc/jnYTtRGh)
+[![(10).jpg](https://i.postimg.cc/FR8RhB2L/(10).jpg)](https://postimg.cc/Hc0H2BWY)
 ## ۶ৎ Bad anger issues and blunt. Keep that in mind when interacting.
 
 
@@ -44,9 +44,7 @@
 [![(9).jpg](https://i.postimg.cc/Gm0v2whC/(9).jpg)](https://postimg.cc/CzNRP2qP)
 
 #### ۶ৎ "𝑰 𝑶𝒏𝒍𝒚 𝑳𝒐𝒐𝒌 𝑨𝒕 𝑽𝒊𝒄𝒕𝒐𝒓𝒚! 𝑻𝒉𝒂𝒕'𝒔 𝑨𝒍𝒍!"
-
-
-[![KA-BOOM.jpg](https://i.postimg.cc/3JjxgPFM/KA-BOOM.jpg)](https://postimg.cc/D8ZhhpN5)
+[![KA-BOOM.jpg](https://i.postimg.cc/7hSxwY1L/KA-BOOM.jpg)](https://postimg.cc/WqbR7VHR)
 
 
 
