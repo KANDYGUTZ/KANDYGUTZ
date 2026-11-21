@@ -5,7 +5,28 @@
 [![(3).gif](https://i.postimg.cc/65Z9BFmc/(3).gif)](https://postimg.cc/jLsVX3Kn)
 ## ۶ৎ HEAVY Bakugo, Present Mic, and Paintbrush Fictkin.
 [![(4).gif](https://i.postimg.cc/ydTLh6xZ/(4).gif)](https://postimg.cc/Vrd9m8jf)
-## ۶ৎ 
+
+<details>
+  <summary>Friends</summary>
+  <br>
+
+  - <img src="https://avatars.githubusercontent.com/u/166640328?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [DYLAN](https://github.com/talentlesshope)
+  - <img src="https://avatars.githubusercontent.com/u/120025586?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [SOKI]([https://github.com](https://github.com/sokizsp4ceship))
+  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [IZUKU](https://github.com)
+  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [PIN](https://github.com)
+  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [MS](https://github.com)
+  -  <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [SUNNY](https://github.com)
+  -  +MORE! Ask to be added please!!
+
+
+
+
+</details>
+
+
+
+
+
 [![(8).jpg](https://i.postimg.cc/13JRdwdq/(8).jpg)](https://postimg.cc/zyH1bb8z)
 ### ۶ৎ C+H encouraged!
 [![(9).jpg](https://i.postimg.cc/Gm0v2whC/(9).jpg)](https://postimg.cc/CzNRP2qP)
@@ -14,15 +35,7 @@
 
 
 [![KA-BOOM.jpg](https://i.postimg.cc/3JjxgPFM/KA-BOOM.jpg)](https://postimg.cc/D8ZhhpN5)
-<details>
-  <summary>Friends</summary>
-  <br>
 
-  - <img src="https://avatars.githubusercontent.com/u/166640328?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [DYLAN](https://github.com/talentlesshope)
-  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [Friend Name 2](https://github.com)
-  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [Friend Name 3](https://github.com)
-
-</details>
 
 
 
