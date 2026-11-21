@@ -1,3 +1,5 @@
+#### ۶ৎ Big disclaimer: If I hide you, there are no hard feelings I just got too irritated! Don't take it personal please.
+
 <p align="center">
   <img src="https://file.garden/aD-jsL8SzQvp8mjK/image_2026-10-16_123318674.png" width="650">
 </p>
