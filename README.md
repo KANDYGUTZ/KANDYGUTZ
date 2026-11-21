@@ -3,18 +3,28 @@
 [![(7).jpg](https://i.postimg.cc/ZnC5PRHX/(7).jpg)](https://postimg.cc/jnYTtRGh)
 ## ۶ৎ Bad anger issues and blunt. Keep that in mind when interacting.
 [![(3).gif](https://i.postimg.cc/65Z9BFmc/(3).gif)](https://postimg.cc/jLsVX3Kn)
-## ۶ৎ Tom/Rody Soul selfshipper / oc x canon!!
-[![Post-by-queenrojpag-5-images.gif](https://i.postimg.cc/xTgSjYPT/Post-by-queenrojpag-5-images.gif)](https://postimg.cc/CzZ2J3tW)
-## ۶ৎ
+## ۶ৎ HEAVY Bakugo, Present Mic, and Paintbrush Fictkin.
+[![(4).gif](https://i.postimg.cc/ydTLh6xZ/(4).gif)](https://postimg.cc/Vrd9m8jf)
+## ۶ৎ 
 [![(8).jpg](https://i.postimg.cc/13JRdwdq/(8).jpg)](https://postimg.cc/zyH1bb8z)
-### ۶ৎ Usually always sitting with friends in different areas! The main two are Danganronpa and OSC
+### ۶ৎ C+H encouraged!
+[![(9).jpg](https://i.postimg.cc/Gm0v2whC/(9).jpg)](https://postimg.cc/CzNRP2qP)
 
-[![(1).gif](https://i.postimg.cc/xT58TkYb/(1).gif)](https://postimg.cc/KRKx081Z)   
-
-#### ۶ৎ I love colorful skins did you know that
+#### ۶ৎ "𝑰 𝑶𝒏𝒍𝒚 𝑳𝒐𝒐𝒌 𝑨𝒕 𝑽𝒊𝒄𝒕𝒐𝒓𝒚! 𝑻𝒉𝒂𝒕'𝒔 𝑨𝒍𝒍!"
 
 
 [![KA-BOOM.jpg](https://i.postimg.cc/3JjxgPFM/KA-BOOM.jpg)](https://postimg.cc/D8ZhhpN5)
+<details>
+  <summary>Friends</summary>
+  <br>
+
+  - <img src="https://github.co" width="30" height="30" style="border-radius:50%;" valign="middle"> [𝑫𝒀𝑳𝑨𝑵](https://github.com/talentlesshope)
+  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [Friend Name 2](https://github.com)
+  - <img src="https://github.com" width="30" height="30" style="border-radius:50%;" valign="middle"> [Friend Name 3](https://github.com)
+
+</details>
+
+
 
 
 
