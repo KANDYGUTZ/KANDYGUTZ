@@ -15,7 +15,7 @@
 
 
 <details>
-  <summary>Friends</summary>
+  <summary>FRIENDS</summary>
   <br>
 
    <img src="https://avatars.githubusercontent.com/u/166640328?v=4" width="30" height="30" style="border-radius:50%;" valign="middle"> [DYLAN](https://github.com/talentlesshope)
