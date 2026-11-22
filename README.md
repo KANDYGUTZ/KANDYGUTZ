@@ -1,5 +1,6 @@
 #### ۶ৎ Big disclaimer: If I hide you, there are no hard feelings I just got too irritated! Don't take it personal please.
 
+
 <p align="center">
   <img src="https://file.garden/aD-jsL8SzQvp8mjK/image_2026-10-16_123318674.png" width="650">
 </p>
@@ -40,6 +41,7 @@
 
 [![(3).gif](https://i.postimg.cc/65Z9BFmc/(3).gif)](https://postimg.cc/jLsVX3Kn)
 ## ۶ৎ HEAVY Bakugo, Present Mic, and Paintbrush Fictkin.
+####  ۶ৎ Tom/Rody Soul self shipper/ oc x canon!
 [![(4).gif](https://i.postimg.cc/ydTLh6xZ/(4).gif)](https://postimg.cc/Vrd9m8jf)
 [![(8).jpg](https://i.postimg.cc/13JRdwdq/(8).jpg)](https://postimg.cc/zyH1bb8z)
 ### ۶ৎ C+H encouraged!
@@ -47,6 +49,7 @@
 
 #### ۶ৎ "𝑰 𝑶𝒏𝒍𝒚 𝑳𝒐𝒐𝒌 𝑨𝒕 𝑽𝒊𝒄𝒕𝒐𝒓𝒚! 𝑻𝒉𝒂𝒕'𝒔 𝑨𝒍𝒍!"
 [![KA-BOOM.jpg](https://i.postimg.cc/7hSxwY1L/KA-BOOM.jpg)](https://postimg.cc/WqbR7VHR)
+
 
 
 
